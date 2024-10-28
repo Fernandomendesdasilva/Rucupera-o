@@ -1,1 +1,0 @@
-# Rucupera-o
